@@ -1,0 +1,2 @@
+# NevinTrianAdeP_E41182107_GolE_Praktikum2
+NevinTrianAdePutera E41182107 Golongan E Praktikum 2
